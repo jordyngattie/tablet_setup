@@ -1,13 +1,1 @@
-# jordyngattie.github.io
 
-
-
-
-
-
-
-
-
-
-
-#hello?
